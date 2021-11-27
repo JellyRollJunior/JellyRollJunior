@@ -2,7 +2,7 @@
 
 (੭ु ›ω‹ )੭ु⁾⁾♡︎ Welcome to my github page (੭ु ›ω‹ )੭ु⁾⁾♡︎
 
-٩(๑˃̌ۿ˂̌๑)۶ Please don't hesitate to let me know how I can improve my code ٩(๑˃̌ۿ˂̌๑)۶
+٩(๑˃̌ۿ˂̌๑)۶ Please don't hesitate to let me know how I can improve my code if you see anything ٩(๑˃̌ۿ˂̌๑)۶
 
 (୨୧ ❛︎ᴗ❛︎)✧︎ Thanks for stopping by (୨୧ ❛︎ᴗ❛︎)✧︎
 
