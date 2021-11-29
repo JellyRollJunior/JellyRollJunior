@@ -1,8 +1,8 @@
-(ू′o‵ ू)*✲ﾟ︎♡︎♪︎  Hello friends  (ू′o‵ ू)*✲ﾟ︎♡︎♪︎ 
+(੭ु ›ω‹ )੭ु⁾⁾♡︎  Hello friends  (ू′o‵ ू)*✲ﾟ︎♡︎♪︎ 
 
-(੭ु ›ω‹ )੭ु⁾⁾♡︎ Welcome to my github page (੭ु ›ω‹ )੭ु⁾⁾♡︎
+Welcome to my github page 
 
-٩(๑˃̌ۿ˂̌๑)۶ Please don't hesitate to let me know how I can improve my code if you see anything ٩(๑˃̌ۿ˂̌๑)۶
+Please don't hesitate to let me know how I can improve my code if you see anything
 
 (୨୧ ❛︎ᴗ❛︎)✧︎ Thanks for stopping by (୨୧ ❛︎ᴗ❛︎)✧︎
 
