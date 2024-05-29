@@ -1,10 +1,4 @@
-(੭ु ›ω‹ )੭ु⁾⁾♡︎  Hello friends  (ू′o‵ ू)*✲ﾟ︎♡︎♪︎ 
-
-Welcome to my github page 
-
-Please don't hesitate to let me know how I can improve my code if you see anything
-
-(୨୧ ❛︎ᴗ❛︎)✧︎ Thanks for stopping by (୨୧ ❛︎ᴗ❛︎)✧︎
+(੭ु ›ω‹ )੭ु⁾⁾♡︎  On my own lil journey (ू′o‵ ू)*✲ﾟ︎♡︎♪︎ 
 
 <!---
 JellyRollJunior/JellyRollJunior is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
