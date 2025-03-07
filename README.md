@@ -1,4 +1,4 @@
-(੭ु ›ω‹ )੭ु⁾⁾♡︎ Welcome friends (ू′o‵ ू)*✲ﾟ︎♡︎♪︎ 
+|˶˙ᵕ˙ )ﾉﾞ Hello and welcome to my page (ू′o‵ ू)*✲ﾟ︎♪︎
 
 <!---
 JellyRollJunior/JellyRollJunior is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
